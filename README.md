@@ -42,7 +42,7 @@ For instance, a stable interest rate environment combined with RERA compliance a
 
 Developments by reputed builders, including ACE Group, are benefiting from this shift as buyers increasingly prefer organised and policy-compliant offerings.
 
-[Read More: Ace Terra Construction Update | March 2026 ~ Luxury Yamuna Expressway Flats ~ Ace Group India](https://www.youtube.com/watch?v=I_qhIV1iEAE)
+Read More: [Ace Terra Construction Update | March 2026 ~ Luxury Yamuna Expressway Flats ~ Ace Group India](https://www.youtube.com/watch?v=I_qhIV1iEAE)
 
 ## Market Outlook for Property in Noida
 
